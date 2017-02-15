@@ -20,5 +20,4 @@ Customer email: getwhatsvpn@gmail.com   wanjun8888@gmail.com<br>
 +852 31108636<br>
 +86 2885366298 (only china)<br>
 
-
 要用它?已经支持android,windows,iPhone到app store，搜[萝卜加速器]或[whatsvpn],或搜索公众号[whatsvpn]进行使用,永久免费
