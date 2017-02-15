@@ -3,7 +3,7 @@ For Chinese well-known reasons, please visit the homepage website of CrossVPN at
 由於眾所周知的原因，請通過下面網址訪問翻越vpn免费版(CrossVPN)的官網.翻越vpn有永久免費的線路,永久免費使用<br>
 我們是非中國境內公司，我們絕不會把隱私洩露給任何機構。<br>
 (翻越vpn免费版)CrossVPN (android download):<br>
-https://www.crossvpn.info/?p=374<br>
+http://www.crossvpn.info/?p=374<br>
 google play:<br>
 https://play.google.com/store/apps/details?id=com.goodyes.vpn.cn<br>
 
