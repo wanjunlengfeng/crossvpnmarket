@@ -4,17 +4,18 @@ For Chinese well-known reasons, please visit the homepage website of CrossVPN at
 我們是非中國境內公司，我們絕不會把隱私洩露給任何機構。<br>
 (翻越vpn免费版)CrossVPN (android download):<br>
 http://www.crossvpn.info/?p=374<br>
+http://45.77.25.171<br>
 google play:<br>
 https://play.google.com/store/apps/details?id=com.goodyes.vpn.cn<br>
 
 (萝卜加速器)WhatsVPN (IOS download):<br>
 https://itunes.apple.com/us/app/id1052656120<br>
 (萝卜加速器)WhatsVPN (windows download):<br>
-https://m.whatsvpn.in/download.php#windows<br>
+https://member.whatsvpn.mobi/download.php#windows<br>
 
 联系我们<br>
 Customer email: getwhatsvpn@gmail.com   wanjun8888@gmail.com<br>
-微信号:crossvpn<br>
+微信号:crossvpnhk<br>
 联系电话:<br>
 +852 31108636<br>
 +86 2885366298 (only china)<br>
